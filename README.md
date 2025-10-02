@@ -1,1 +1,2 @@
-# margraves-bastard-son-was-the-emperor
+# Margrave’s Bastard Son was The Emperor
+« Un empereur mort injustement devient un misérable fils bâtard ! Ian, un sorcier de l’empire Bariel, devint empereur à un jeune âge, mais fut emprisonné à cause de la rébellion de son neveu. Cependant, il fut sauvé par le sorcier Naum grâce à une magie spatio-temporelle interdite. Cette magie conduit l’empereur Ian 100 ans dans le passé, où il possède le bâtard Ian, le fils illégitime de la famille Margrave qui s’est éteinte il y a 100 ans. Ian le Bâtard est sur le point d’être pris en otage par les barbares ! Ian est sur le point d’être pris dans une conspiration sanglante ! !!
